@@ -1,1 +1,1 @@
-![Little Mushroom (1)](https://github.com/user-attachments/assets/51b42563-daaa-4abd-9925-cdb7ff8614b6)
+<img width="1010" height="864" alt="Untitled189_20250728120703" src="https://github.com/user-attachments/assets/56802b85-7f85-474b-a748-0627c0946c7d" />
